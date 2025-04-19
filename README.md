@@ -2,9 +2,11 @@
 
 Fortnite is one of the most popular games in the world—and for good reason! From fun battle royale matches to awesome cosmetics, it's a game full of excitement. But most of the cool stuff, like skins and Battle Passes, require V-Bucks. If you're wondering how to get free V-Bucks codes, you're not alone.
 
-🙋‍♀️🙋‍♀️Get free v bucks​ codes
+🙋‍♀️🙋‍♀️[Get free v bucks​ codes](https://miniurl.top/XsBw)
 
-🙋‍♀️🙋‍♀️Get free v bucks​ codes
+
+
+🙋‍♀️🙋‍♀️[Get free v bucks​ codes](https://miniurl.top/XsBw)
 
 Here’s a simple guide for beginners to get started the safe and smart way.
 
